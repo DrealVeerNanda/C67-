@@ -1,0 +1,1 @@
+Once there was a cat who came outside every day. There was also a frog that came out every day. The cat and the frog played, and ended up finding wolves. They ran, and ran far.
